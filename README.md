@@ -1,2 +1,2 @@
-# kadowakitamae.github.ic
+# kadowakitamae.github.io
 あやめ一号
